@@ -1,2 +1,2 @@
 # portfolio
-gaurang bhatt
+gaurang bhatt Gaurang Bhatt
